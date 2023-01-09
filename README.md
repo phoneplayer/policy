@@ -1,3 +1,4 @@
+Privacy Policy
 Last update: January 10, 2023
 
 Welcome to PhonePlayer.
